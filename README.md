@@ -1,6 +1,6 @@
 # optical
 
-CV and certificates for download.
+CV and certificates to view or download.
 
 My Performer's List number: **OPL/0124063/5D7**.
 
